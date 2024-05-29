@@ -1,0 +1,6 @@
+![Screenshot 2024-05-29 004849](https://github.com/Sufi26/Responsive-Website-for-College-Techfest/assets/120314042/99120679-0dcf-45cf-923a-eb149bc4fd11)
+![Screenshot 2024-05-29 004903](https://github.com/Sufi26/Responsive-Website-for-College-Techfest/assets/120314042/fef22692-4bef-483d-ae85-7dc7e209ae4c)
+![Screenshot 2024-05-29 004915](https://github.com/Sufi26/Responsive-Website-for-College-Techfest/assets/120314042/12e3ce2a-a763-4cd2-8ce1-eb6a3201e2b4)
+![Screenshot 2024-05-29 005000](https://github.com/Sufi26/Responsive-Website-for-College-Techfest/assets/120314042/55453ae1-d05e-4799-894b-ed50cb37d4bb)
+![Screenshot 2024-05-29 005011](https://github.com/Sufi26/Responsive-Website-for-College-Techfest/assets/120314042/c66bf655-3f24-4223-afb2-8eb57ca3a008)
+![Screenshot 2024-05-29 005034](https://github.com/Sufi26/Responsive-Website-for-College-Techfest/assets/120314042/0f0f1be9-dc40-497d-9034-e59f8f72ce9c)
